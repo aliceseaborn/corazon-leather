@@ -40,7 +40,7 @@ More information soon.
 
 You can find more information about our contest on these social media sites:
 
-* [Checkout out Facebook page](https://www.facebook.com/groups/979319810001705)
+* [Checkout our Facebook page](https://www.facebook.com/groups/979319810001705)
 * [Find us on MeetUp](https://www.meetup.com/albuquerque-leather-kink/)
 
 
