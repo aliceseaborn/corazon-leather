@@ -1,8 +1,8 @@
 ---
 title: About
-menu_order: 1
+menu_order: 2
 post_status: publish
-post_excerpt: Homepage
+post_excerpt: Learn more about Corazón Leather events
 ---
 
 Learn more about Corazón Leather events as a spectator, contestant, volunteer or sponsor! Get involved and enjoy New Mexico's leather and kink culture!
