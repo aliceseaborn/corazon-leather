@@ -3,7 +3,6 @@ title: Welcome!
 menu_order: 1
 post_status: publish
 post_excerpt: Homepage
-featured_image: _images/2023-poster.jpg
 ---
 
 Corazón Leather &#8482; is New Mexico's premier leather and kink contest.  It brings together disparate folks who might have nothing in common save for an interest in kinky sex and Leather culture.
