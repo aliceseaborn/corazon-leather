@@ -9,8 +9,8 @@ Corazón Leather &#8482; is New Mexico's premier leather and kink contest.  It b
 
 The 2023 Corazón Leather &#8482; contest will be held 20-21 October, 2023 in Albuquerque, New Mexico. Here is more information:
 
-* [Learn more about the next event.](http://45.33.126.133/event.html)
-* [Learn more about the contest.](http://45.33.126.133/about.html)
-* [Applications are now closed, but you can learn how to become a contestant in a future event.](http://45.33.126.133/contestant.html)
+* [Learn more about the next event.](http://45.33.126.133/index.php/event.html)
+* [Learn more about the contest.](http://45.33.126.133/index.php/about.html)
+* [Applications are now closed, but you can learn how to become a contestant in a future event.](http://45.33.126.133/index.php/contestant.html)
 
 ![2023 Poster](/_images/2023-poster.jpg "2023 Poster")
