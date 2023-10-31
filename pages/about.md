@@ -46,4 +46,4 @@ You can find more information about our contest on these social media sites:
 
 ## How to contact us.
 
-Please send any questions by text to the producer of the competition, Jayson DaBoi, at 505-610-1432 or email [info@corazonleathernm.com](mailto:info@corazonleathernm.com).
+Please send any questions by email to [info@corazonleathernm.com](mailto:info@corazonleathernm.com) to reach Jayson DaBoi and his staff.

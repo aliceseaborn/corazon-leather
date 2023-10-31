@@ -36,7 +36,7 @@ Our judging panel is made up of esteemed guests and members of various local lea
 
 ## Rules & Guidelines
 
-These are the Corazón Leather Contest guidelines. We couldn't be happier that you are considering participating in the sixth Corazón title competition. Here you can find what is expected of contestants and winners. Please send any questions by text to the producer of the competition, Jayson DaBoi, at 505-610-1432. He will respond within 24 hours.
+These are the Corazón Leather Contest guidelines. We couldn't be happier that you are considering participating in the sixth Corazón title competition. Here you can find what is expected of contestants and winners. Please send any questions by email to [info@corazonleathernm.com](mailto:info@corazonleathernm.com) to reach the production team. We will do our best to respond within 48 hours.
 
 ### I want to run! How to enter the contest:
 
