@@ -5,7 +5,6 @@ post_status: publish
 post_excerpt: Details for the Corazón Leather event
 ---
 
-
 The next Corazón Leather events is described on this page. Come join us!
 
 **When:** Friday October 20th & Saturday October 21st, 2023 <br>

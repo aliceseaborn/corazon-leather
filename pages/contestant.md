@@ -5,7 +5,6 @@ post_status: publish
 post_excerpt: Learn what it's like to compete
 ---
 
-
 Being a contestant in our event will be fun, give you experience, great memories, and better connect you to our community. Like any title, it's not always about winning. The experience and connection to community is what matters.
 
 Come join us! This page will help you understand more about our event and how it works.
