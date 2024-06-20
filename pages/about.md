@@ -18,17 +18,17 @@ Corazón Leather is looking for good people who are willing and able to share th
 
 ## Who runs this contest?
 
-A bit about our history. Jayson DaBoi and crew are proud to present the fifth annual Corazón Leather contest. You can find more about our history on the [history page](http://45.33.126.133/index.php/history) page of this website.
+A bit about our history. Jayson DaBoi and crew are proud to present the fifth annual Corazón Leather contest. You can find more about our history on the [history page](http://www.corazonleathernm.com/index.php/history) page of this website.
 
 
 ## Attending Corazón Leather events.
 
-Our title contest is held once per year. See the [event](http://45.33.126.133/index.php/event) page to learn when and where you can attend. You'll find entertainment and comradery at our event interacting with our community, the contestants, bootblacks, vendors, and more. Throughout the year, you may see our titleholders hold or attend other leather and kink events.
+Our title contest is held once per year. See the [event](http://www.corazonleathernm.com/index.php/event) page to learn when and where you can attend. You'll find entertainment and comradery at our event interacting with our community, the contestants, bootblacks, vendors, and more. Throughout the year, you may see our titleholders hold or attend other leather and kink events.
 
 
 ## Competing in Corazón Leather events.
 
-Our title contest is held once per year. See the [contestant](http://45.33.126.133/index.php/contestant) page to learn when and where you can compete. Titleholders not only serve the community, they have a great time, and are rewarded with experience and connection to our community.
+Our title contest is held once per year. See the [contestant](http://www.corazonleathernm.com/index.php/contestant) page to learn when and where you can compete. Titleholders not only serve the community, they have a great time, and are rewarded with experience and connection to our community.
 
 
 ## How to become a sponsor or vendor.

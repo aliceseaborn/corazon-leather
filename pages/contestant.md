@@ -31,7 +31,7 @@ Corazón Leather is New Mexico's premier pansexual kink title, produced by Jayso
 
 ## Judges
 
-Our judging panel is made up of esteemed guests and members of various local leather/kink communities. The judging panel will be announced Friday night. See more about our judges on the [event](http://45.33.126.133/index.php/event) page.
+Our judging panel is made up of esteemed guests and members of various local leather/kink communities. The judging panel will be announced Friday night. See more about our judges on the [event](http://www.corazonleathernm.com/index.php/event) page.
 
 
 ## Rules & Guidelines
