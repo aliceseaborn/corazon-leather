@@ -66,7 +66,7 @@ Paradox became a member of the Leather Uniform Club of Las Vegas in 2014 and has
 
 ### Judge - Marshal Martinez
 
-![Marshal Martinez](/_images/judges/marshal-martinez.png "Marshal Martinez, Judge")
+![Marshall Martinez](/_images/judges/marshall-martinez.png "Marshall Martinez, Judge")
 
 Marshall Martinez, A Triple Leo and sometimes Drag Queen, is the Executive Director of Equality New Mexico. Marshall was born and raised in New Mexico, and has been working in the liberation movement and political advocacy since he was 17 years old. Marshall has worked as the Public Affairs Director at Planned Parenthood in New Mexico, For Economic Justice in the Labor Unions movement, and managed multiple candidates seeking offices from City Council to the United States Congress. Marshall believes the core of liberation is bodily autonomy, when we can choose what and how to control our bodies, nothing can stop us controlling our lives and living our full authentic selves free from oppression. You can often find Marshall working more than he should, at the Albuquerque Social Club in shows, or on his couch watching The West Wing or Golden Girls for the thousandth time.
 
