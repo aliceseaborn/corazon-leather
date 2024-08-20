@@ -15,7 +15,7 @@ Come join us! This page will help you understand more about our event and how it
 Do you like serving? How about doing things for others? Does travel interest you? Performing and fund-raising? Do you enjoy any of the former in a kinky context? Corazón Leather is looking for someone like you! As New Mexico's premier Leather contest, Corazón title holders pride themselves on the four tenets of Leather culture: Honesty, Integrity, Loyalty and Trust, with a healthy dose of community service and good old fashioned kinky fun. We work to unite all parts of our kinky community, from Leather Daddies to Pet Players, and everyone in between.  This is a chance to entertain, organize, and lead a rambunctious crew with unspeakable interests. Interested?
 
 <center>
-  <h3>Applications are now closed. <br> Check back next year when applications will reopen in 2024.</h3>
+  <h3>Applications are now closed. <br> Check back next year when applications reopen.</h3>
 </center>
 
 
@@ -41,9 +41,9 @@ These are the Corazón Leather Contest guidelines. We couldn't be happier that y
 ### I want to run! How to enter the contest:
 
 Here are the primary requirements for the contest:
-* Contest application must be submitted by Friday, September 22,2023. This is FOUR weeks prior to the event.
-* Any submissions after Friday, September 22,2023 will not be considered.
-* Music and stage direction and fantasies must be received no later than Friday, October 13, 2023. This is ONE week prior to the event. Any music, stage direction and fantasies submitted late will forfeit five points from the judges.
+* Contest application must be submitted by Friday, September 22,2024. This is FOUR weeks prior to the event.
+* Any submissions after Friday, September 22,2024 will not be considered.
+* Music and stage direction and fantasies must be received no later than Friday, October 13, 2024. This is ONE week prior to the event. Any music, stage direction and fantasies submitted late will forfeit five points from the judges.
 * On the evening of Friday October 20th, Social Club's Leather/Kink Night is held. Contestants are expected to attend this event. Please take this time to introduce yourself to the contest judges and interact in social settings with community members.
 * Judging interviews will occur Saturday morning, 10:30 am, at Sera Miles studio.
 * Saturday evening's contest will include your bio/introduction in formal wear, hot wear segment and pop question, and an on-stage fantasy. Complete details on your time obligations during the contest weekend will be provided by the contest organizers.
@@ -60,7 +60,7 @@ The two highest scoring contestants, with a minimum of 60 points each, will be a
 | Hot Wear & Pop Question | 15 points per judge | Saturday night each contestant will have their bio read (by the emcee) as their introduction to the Saturday night audience. During this period the contestant is expected to show off their hot wear. After their bio is read they will be asked one pop question. |
 |         Fantasy         |      30 points      | Saturday night each contestant is asked to perform a fantasy. This is the talent or entertainment portion of the Saturday night show, and is the final scoring prior to the final tally.                                                                            |
 
-Tallies will be calculated through Olympic Scoring: the highest and lowest judges' scores will be removed, and the remaining scores will be averaged for a final tally. The two highest-scoring contestants will be named as the 2023 Corazón Leather Leaders!  In case of a tie, the contestant with the highest scoring interview will be selected as the winner. If this score is a tie, lead judge will make the final decision.
+Tallies will be calculated through Olympic Scoring: the highest and lowest judges' scores will be removed, and the remaining scores will be averaged for a final tally. The two highest-scoring contestants will be named as the 2024 Corazón Leather Leaders!  In case of a tie, the contestant with the highest scoring interview will be selected as the winner. If this score is a tie, lead judge will make the final decision.
 
 
 ## I won! I won! Now What?
