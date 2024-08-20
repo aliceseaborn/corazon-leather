@@ -10,14 +10,46 @@ Learn more about the history of Corazón Leather on this page.
 
 ## Past Titleholders
 
-| Year | Titleholders                                 |
-|------|----------------------------------------------|
-| 2015 | &ensp; Brooke NoZKitten<br>Joseph Corazón    |
-| 2016 | &ensp; Jinx the Corazón Lynx<br>Ninjet Kitty |
-| 2017 | &ensp; Ty the Gentleman                      |
-| 2019 | &ensp; boy Christian<br>Sir Magnum           |
-| 2022 | &ensp; Uncle Jaie<br>Boy Chris               |
-| 2023 | &ensp; Lash Onyx<br>Stellar                  |
+<style type="text/css">
+.tg  {border-collapse:collapse;border-spacing:0;}
+.tg td{border-color:black;border-style:solid;border-width:1px;font-family:Arial, sans-serif;font-size:14px;
+  overflow:hidden;padding:10px 5px;word-break:normal;}
+.tg th{border-color:black;border-style:solid;border-width:1px;font-family:Arial, sans-serif;font-size:14px;
+  font-weight:normal;overflow:hidden;padding:10px 5px;word-break:normal;}
+.tg .tg-0pky{border-color:inherit;text-align:left;vertical-align:top}
+</style>
+<table class="tg"><thead>
+  <tr>
+    <th class="tg-0pky">Year</th>
+    <th class="tg-0pky">Titleholders</th>
+  </tr></thead>
+<tbody>
+  <tr>
+    <td class="tg-0pky">2015</td>
+    <td class="tg-0pky">Brooke NoZKitten & Joseph Corazón</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky">2016</td>
+    <td class="tg-0pky">Jinx the Corazón Lynx & Ninjet Kitty</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky">2017</td>
+    <td class="tg-0pky">Ty the Gentleman</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky">2019</td>
+    <td class="tg-0pky">boy Christian & Sir Magnum</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky">2022</td>
+    <td class="tg-0pky">Uncle Jaie & Boy Chris</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky">2023</td>
+    <td class="tg-0pky">Lash Onyx & Stellar</td>
+  </tr>
+</tbody>
+</table>
 
 ### 2023 - Stellar
 
