@@ -10,14 +10,14 @@ Learn more about the history of Corazón Leather on this page.
 
 ## Past Titleholders
 
-| Year | Titleholders                          |
-|------|---------------------------------------|
-| 2015 | Brooke NoZKitten<br>Joseph Corazón    |
-| 2016 | Jinx the Corazón Lynx<br>Ninjet Kitty |
-| 2017 | Ty the Gentleman                      |
-| 2019 | boy Christian<br>Sir Magnum           |
-| 2022 | Uncle Jaie<br>Boy Chris               |
-| 2023 | Lash Onyx<br>Stellar                  |
+| Year | Titleholders                                 |
+|------|----------------------------------------------|
+| 2015 | &ensp; Brooke NoZKitten<br>Joseph Corazón    |
+| 2016 | &ensp; Jinx the Corazón Lynx<br>Ninjet Kitty |
+| 2017 | &ensp; Ty the Gentleman                      |
+| 2019 | &ensp; boy Christian<br>Sir Magnum           |
+| 2022 | &ensp; Uncle Jaie<br>Boy Chris               |
+| 2023 | &ensp; Lash Onyx<br>Stellar                  |
 
 ### 2023 - Stellar
 
