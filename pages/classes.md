@@ -15,7 +15,6 @@ Knives are scary! And sexy, passionate, and fun. We’ll talk about different ty
 
 In light of sex-positive approaches to kink and the eroticization of power, consensual authority exchange as practiced in certain styles of BDSM can have positive, lasting, and transformative effects on our day-to-day lives. Successful, consensual authority exchange relationships require self-awareness, vulnerability, and transparent communication. Such skills enhance accountability, authenticity, and self-expression, directly and holistically contributing to the overall cultivation of an emotional intelligence skill set, and often having beneficial effects regarding emotional well-being and resilience. Through a discussion of the four facets of emotional intelligence, this presentation will discuss how D-types and s-types uniquely become catalysts of change beyond our private spaces, and how authority exchange can allow us to walk in our authenticity as we navigate our way through the world.
 
-
 ## Dom-ly Doms and Simpering Subs: Overcoming D/s Stereotypes
 *Sunday, 10:00 AM*
 
@@ -23,8 +22,6 @@ Society and the Leather community have conspired to paint pictures in our heads 
 
 
 ## Meet the Instructors
-
-
 
 ### Marilyn & Rio
 
@@ -37,4 +34,3 @@ Marilyn and Rio, Mistress and collared slave, served as Northwest Master and sla
 Sir Quill & His Mercy have over 35 years combined experience as educators in higher education and the outdoor industry respectively, specializing in cultural & gender studies, leadership development, and risk management. Sir Quill is a polyamorous Dom, and Master to Mercy, His polyamorous pandemisexual switch. In their classes and through their “Please Kink Responsibly” Substack, they explore transformational authority exchange, and how our identities and power are connected to our deepest spaces of vulnerability.
 
 ![Sir Quill & His Mercy](/_images/instructors/sir-quill-and-mercy.jpeg "Sir Quill & His Mercy")
-
