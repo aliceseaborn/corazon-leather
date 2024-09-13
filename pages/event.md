@@ -51,7 +51,15 @@ The Corazón Leather title is about leading with your heart, and leading our bro
 
 ### Head Judge - Tyler McCormick
 
-...
+![Tyler McCormick](/_images/judges/tyler-mccormick.jpg "Tyler McCormick, Judge")
+
+Hometown guy who has gone off on a trolley, for those that don't already know him, meet Tyler McCormick, the judge with the most discerning eye in the room and a sense of humor sharp enough to cut through any awkwardness! As the self-proclaimed “Master of Mischief” and “Supreme Overseer of Shenanigans,” Tyler brings a perfect blend of expertise and irreverence to the judging panel. 
+
+As International Mr. Leather 2010, and runner up for New Mexico Bootblack 2009 (Of course, Jayson DaBoi won that one), Tyler has spent years perfecting his skills in the fine art of evaluating everything from outrageous leather performances to horses in rubber.  
+
+Tyler has 25 years of experience in the leather arena, most of which he got right here in Albuquerque. He was honored to spend 14 of those years alongside his Master Steve Wearden. His list of qualifications to be our head judge is so long that he wouldn’t have any hair left on his head if we read them all. 
+
+So, as you step onto the stage, remember: Tyler is here to offer his honest critique with a side of playful banter. Expect fair judgment, a lot of laughs, and a night that’s anything but ordinary. Let the games begin and may the best leather person win—and don’t worry, Tyler will make sure you leave with a smile, a story, and perhaps a few new fans! 
 
 ### Judge - Leonidas Rico-Steel
 
