@@ -6,16 +6,19 @@ post_excerpt: Class offerrings at this year's Corazón Leather contest
 ---
 
 ## At Knife Point: Artistry with Blades
+**Marilyn & Rio**
 *Saturday, 3:00 PM*
 
 Knives are scary! And sexy, passionate, and fun. We’ll talk about different types of knives and related toys. We’ll also discuss the basics of playing with different kinds of knives, and how to make it hot. We’ll give you some ideas about how to integrate knife play into scenes, and negotiating. There will be spicy demos, and plenty of time for questions and sharing.
 
 ## Empowerment is my Kink: Emotional Intelligence and Transformative Authority Exchange
+**Sir Quill & His Mercy**
 *Saturday, 4:30 PM*
 
 In light of sex-positive approaches to kink and the eroticization of power, consensual authority exchange as practiced in certain styles of BDSM can have positive, lasting, and transformative effects on our day-to-day lives. Successful, consensual authority exchange relationships require self-awareness, vulnerability, and transparent communication. Such skills enhance accountability, authenticity, and self-expression, directly and holistically contributing to the overall cultivation of an emotional intelligence skill set, and often having beneficial effects regarding emotional well-being and resilience. Through a discussion of the four facets of emotional intelligence, this presentation will discuss how D-types and s-types uniquely become catalysts of change beyond our private spaces, and how authority exchange can allow us to walk in our authenticity as we navigate our way through the world.
 
 ## Dom-ly Doms and Simpering Subs: Overcoming D/s Stereotypes
+**Marilyn & Rio**
 *Sunday, 10:00 AM*
 
 Society and the Leather community have conspired to paint pictures in our heads about what it means to be Dominants and submissives. And people in these roles are plagued with being “not enough” or “not doing it right”. In this class we’ll discuss the range of what it means to be on either side of slash, “Imposter Syndrome,” how to find your authentic voice, and how to let go of the “should be” stereotypes.
