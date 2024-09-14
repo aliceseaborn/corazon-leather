@@ -70,7 +70,10 @@ Currently, Leonidas has been bestowed with the title of King Father 2 of the Duk
 
 ### Judge - Master RetroBella
 
-...
+
+Master Retro Bella is a Latina High Femme Leather Woman from Bakersfield, California. Her pronouns are She/Her/Hers. She is the first woman to earn the title of 2023 Southwest Master and currently serves as the first Latina to hold the title of 2024 International Master. Master Retro Bella is the President of the valley’s 1st girls of Leather chapter, San Joaquin Girls of Leather. She is passionate about Latinx/ne representation in M/s and Leather spaces. This passion fueled her to create the Latine Leather pride flag and become the founder of Latinos in Leather. Recognized as one of the Onyx pearls' 'Young 8,' she carries the pearl name Amara Pearl. Master Retro Bella is also the Co-head of the Leather house, House Of Dark Shadows. Together with her slave boydrake, your 2024 International slave, they’ve taught for multiple groups and conferences on both coasts, in the Rocky Mountain region, and internationally.
+
+![Master RetroBella](/_images/judges/master-retrobella.jpg "Master RetroBella, Judge")
 
 ### Judge - Briar
 
