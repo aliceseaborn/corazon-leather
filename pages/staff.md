@@ -21,12 +21,12 @@ Our Talley Mistress is Sera Miles, Leather, D-type, Leo Stellium. Activist, educ
 
 ## Staff
 
-| Name          | Role                   |
-|---------------|------------------------|
-| Tami          | Assistant Producer     |
-| Michael DaBoi | Contest DaBoi          |
-| Alice         | Website                |
-| Heather       | Hospitality            |
-| Lil' Miss     | Contestant Coordinator |
-| Mama Gwenn    | Stage Manager          |
-| Xander        | Silent Auction         |
+| Name                | Role                   |
+|---------------------|------------------------|
+| Tami                | Assistant Producer     |
+| Michael DaBoi       | Contest DaBoi          |
+| Alice               | Website                |
+| Heather             | Hospitality            |
+| Lil' Miss           | Contestant Coordinator |
+| Mama Gwenn & Team   | Stage Manager          |
+| Xander              | Silent Auction         |
