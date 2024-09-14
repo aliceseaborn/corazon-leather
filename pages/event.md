@@ -74,7 +74,11 @@ Currently, Leonidas has been bestowed with the title of King Father 2 of the Duk
 
 ### Judge - Briar
 
-...
+Briar (She/They/Captain) identifies as a Leather, demi-queer, poly, Top-heavy Switch. Bootblack to all, Captain to many, girl to a select few and Mommy to one. Briar has been active in the Dallas community since 2010. Teaching, learning, playing and encouraging others to shenanigate and drive buses from coast to coast.
+Briar was your ICBB 2015 and was also nominated for the 2016 Woman of the year for Pantheon of Leather awards. In 2023, Briar became a member of the Firedancers Dallas and currently serves as their club Secretary. Briar started and ran DFW Bootlab for years pre-pandemic and has recently reopened it to continue working towards retirement by raising up the next generation of bootblacks.
+Briar stays busy volunteering in many areas within the community. While her most rewarding is being part of Leslie’s Team Shine at IML. If you see her at events, she is likely volunteering in some capacity as she has been for years.
+
+![Briar](/_images/judges/briar.jpg "Briar, Judge")
 
 ### Judge - Justin Garoutte
 
