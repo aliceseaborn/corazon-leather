@@ -33,8 +33,10 @@ Corazón Leather &#8482; will be held on Friday October 18th through Sunday Octo
 * This is Leather & Kink Night at Social Club. It's our meet & greet!
 
 **Saturday**
-* Classes are $10 per person and include all classes for the weekend.
-* Event tickets $10 standing room / $15 seats.
+* Friday night is free for Social Club members.
+	* $5 per person for non-members.
+* Classes are $15 per person and include all classes for the weekend.
+* Event tickets $10 standing room / $15 seats, Saturday night only.
 * Tickets include Social Club membership for the night.
 	* Obtain tickets by stopping by or calling Social Club at 505-200-0663.
 
