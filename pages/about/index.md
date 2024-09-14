@@ -3,6 +3,8 @@ title: About
 menu_order: 2
 post_status: publish
 post_excerpt: Learn more about Corazón Leather events
+taxonomy:
+    doc_category: wordpress-plugins
 ---
 
 Learn more about Corazón Leather events as a spectator, contestant, volunteer or sponsor! Get involved and enjoy New Mexico's leather and kink culture!
