@@ -17,13 +17,13 @@ The next Corazón Leather events is described on this page. Come join us!
 
 Corazón Leather &#8482; will be held on Friday October 18th through Sunday October 20st, 2024. Primary events will be at Albuquerque Social Club (Soch) and classes will be held at Sidewinders.
 * Friday, October 18th
-	* Opening Ceremonies - 9 pm. Social Club.
+	* Opening Ceremonies - 9:00 pm. Social Club.
 	* Meet & Greet at Leather & Kink Night.
 * Saturday, October 19th
-	* Classes - 3 pm. Sidewinders.
-	* Main Event - 9 pm. Social Club.
+	* Classes - 3:00 pm. & 4:30 pm. Sidewinders.
+	* Main Event - 9:00 pm. Social Club.
 * Sunday, October 20th
-	* Classes - TBD
+	* Classes - 10:00 am. Soft Corners Studio Center
 
 
 ## Cost to attend & Tickets
