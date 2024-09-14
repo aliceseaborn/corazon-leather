@@ -13,7 +13,7 @@ As International Ms. Bootblack 2010, Jayson served with the belief that boots cr
 Jayson is married to a beautiful girl who somehow manipulated the time-space continuum with her wily ways to get Jayson to be still long enough to see around his lens as an insatiable flirt, boisterous bootblack, and driven Leather Boi. He's her Owner, she's his property, and her love illuminates his champion heart above all else!
 Jayson's nights are rich with laughter, love, and support at Leather events. Most importantly, Jayson DaBoi enjoys this precious life and celebrates ohana. He'd love for you to say *hi* so he can give back a proper WOOF.
 
- 
+
 ## Tally Mistress - Sera Miles
 
 Our Talley Mistress is Sera Miles, Leather, D-type, Leo Stellium. Activist, educator, writer. Career sex worker. Based in Albuquerque, Sera loves not only being on the microphone, but moreover, sharing the stage and growing community.
