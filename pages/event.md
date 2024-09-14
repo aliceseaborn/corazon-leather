@@ -98,3 +98,12 @@ Justin continues breaking down barriers for health and building power through co
 ![Sera Miles](/_images/judges/sera-miles.png "Sera Miles, Tally Mistress")
 
 Our Talley Mistress is Sera Miles, Leather, D-type, Leo Stellium. Activist, educator, writer. Career sex worker. Based in Albuquerque, Sera loves not only being on the microphone, but moreover, sharing the stage and growing community.
+
+
+## Event Boot Black
+
+Pup Koda has been roaming, sniffing, and boot licking his way around Leather Land™ for 16 years. In that time, he has found his way in and out of many adventures, a few misadventures, and various roles along the way. He can most always be found working the stands at events, and just as often in various hotel rooms. Though most of his gear is red, he can also be found flagging yellow and black.
+
+TL;DR: Poly, Piggy, Bootblack, Puppy.
+
+![Pup Koda](/_images/bootblack/pup-koda.jpeg "Pup Koda, Bootblack")
