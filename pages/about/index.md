@@ -3,6 +3,8 @@ title: About
 menu_order: 2
 post_status: publish
 post_excerpt: Learn more about Corazón Leather events
+taxonomy:
+    doc_category: wordpress-plugins
 ---
 
 Learn more about Corazón Leather events as a spectator, contestant, volunteer or sponsor! Get involved and enjoy New Mexico's leather and kink culture!
@@ -18,7 +20,7 @@ Corazón Leather is looking for good people who are willing and able to share th
 
 ## Who runs this contest?
 
-A bit about our history. Jayson DaBoi and crew are proud to present the fifth annual Corazón Leather contest. You can find more about our history on the [history page](http://www.corazonleathernm.com/index.php/history) page of this website.
+A bit about our history. Jayson DaBoi and crew are proud to present the sixth annual Corazón Leather contest. You can find more about our history on the [history page](http://www.corazonleathernm.com/index.php/history) page of this website.
 
 
 ## Attending Corazón Leather events.
@@ -33,7 +35,7 @@ Our title contest is held once per year. See the [contestant](http://www.corazon
 
 ## How to become a sponsor or vendor.
 
-More information soon.
+Reach out to Jayson DaBoi directly or email [info@corazonleathernm.com](mailto:info@corazonleathernm.com) to reach Jayson's staff.
 
 
 ## Our Social Media sites.
