@@ -36,39 +36,51 @@ Our judging panel is made up of esteemed guests and members of various local lea
 
 ## Rules & Guidelines
 
-These are the Corazón Leather Contest guidelines. We couldn't be happier that you are considering participating in the sixth Corazón title competition. Here you can find what is expected of contestants and winners. Please send any questions by email to [info@corazonleathernm.com](mailto:info@corazonleathernm.com) to reach the production team. We will do our best to respond within 48 hours.
+Welcome to the Corazón Leather Contest guidelines page. We couldn't be happier that you are considering participating in the seventh Corazón Leather title competition. Here you can find what is expected of contestants and winners. Please send any questions by text to the producer of the competition, Jayson DaBoi, at 505-610-1432.  He will respond within 24 hours.
 
-### I want to run! How to enter the contest:
+### I want to run!
 
-Here are the primary requirements for the contest:
-* Contest application must be submitted by Friday, September 22,2024. This is FOUR weeks prior to the event.
-* Any submissions after Friday, September 22,2024 will not be considered.
-* Music and stage direction and fantasies must be received no later than Friday, October 13, 2024. This is ONE week prior to the event. Any music, stage direction and fantasies submitted late will forfeit five points from the judges.
-* On the evening of Friday October 20th, Social Club's Leather/Kink Night is held. Contestants are expected to attend this event. Please take this time to introduce yourself to the contest judges and interact in social settings with community members.
-* Judging interviews will occur Saturday morning, 10:30 am, at Sera Miles studio.
-* Saturday evening's contest will include your bio/introduction in formal wear, hot wear segment and pop question, and an on-stage fantasy. Complete details on your time obligations during the contest weekend will be provided by the contest organizers.
+To compete you must be 21 years old by the date of the contest: Friday, October 18, 2024.
+Two winners of any gender identity and/or leather identity may be awarded the Corazón Leather titles. Contest application must be submitted by Tuesday, October 1. Any submissions after October 1, 2024 will not be considered.
+Music and stage direction for fantasies must be received no later than **Friday**, October 11, 2024. This is ONE week prior to the event. Any music or stage direction for fantasies submitted late will forfeit five points from the judges.
+
+#### Friday October 18, 2024, 9pm: Kink / Leather Night at the Albuquerque Social Club
+
+Contestants are expected to attend. You will be introducing yourself on stage. Prepare a two minute introduction. This should be an overview of who you are and can contain anything you wish, such as your kinks, Leather/Kink community experience, why you are running for this title, etc.  Contestant numbers will be drawn on stage. Please take the rest of the evening to introduce yourself to the contest judges and interact in social settings with community members.
+
+#### Saturday October 19, 2024, 10:30am: Interviews at Soft Corners Studio Center
+
+Interviews are limited to 30 minutes per contestant with a follow-up at the Judges' discretion.
+
+#### Saturday October 19, 2024, 8:30pm: Contest at the Albuquerque Social Club
+
+Saturday evening will include your bio and introduction in formal wear, hot wear segment with pop question, and an on-stage fantasy.
+
+Complete details on your time obligations during the contest weekend will be provided by the contest organizers or Contestant Coordinator.
 
 ### Scoring
 
 The two highest scoring contestants, with a minimum of 60 points each, will be awarded as the 2022 Corazón Leather Leaders. Judges will score contestants on the following criteria:
 
-|         Category        |        Points       | Details                                                                                                                                                                                                                                                             |
-|:-----------------------:|:-------------------:|---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------|
-|       Application       |  5 points per judge | Your application will be a small part of your score. Please take care filling out your application.                                                                                                                                                                 |
-|        Interview        | 40 points per judge | Interviews will take place Friday evening after the opening ceremonies. Contestants will be called in front of the judges one at a time. Contestants are expected to stay in the waiting area until the judging panel release the final interviewee.                |
-|        Bio/Intro        | 15 points per judge |                                                                                                                                                                                                                                                                     |
-| Hot Wear & Pop Question | 15 points per judge | Saturday night each contestant will have their bio read (by the emcee) as their introduction to the Saturday night audience. During this period the contestant is expected to show off their hot wear. After their bio is read they will be asked one pop question. |
-|         Fantasy         |      30 points      | Saturday night each contestant is asked to perform a fantasy. This is the talent or entertainment portion of the Saturday night show, and is the final scoring prior to the final tally.                                                                            |
+|            Category           |        Points       |
+|:-----------------------------:|:-------------------:|
+| Application                   | 5 points            |
+| Bio/Introduction, Formal Wear | 15 points           |
+| Hot Wear and Pop Question     | 15 points           |
+| Interview                     | 40 points           |
+| Fantasy                       | 25 points           |
 
-Tallies will be calculated through Olympic Scoring: the highest and lowest judges' scores will be removed, and the remaining scores will be averaged for a final tally. The two highest-scoring contestants will be named as the 2024 Corazón Leather Leaders!  In case of a tie, the contestant with the highest scoring interview will be selected as the winner. If this score is a tie, lead judge will make the final decision.
-
+Tallies will be calculated through Averaged Raw Scoring: All scores will be added together then divided by the number of judges (5). The two highest-scoring contestants will be named as the 2024 Corazón Leather Titleholders!
+In case of a tie, the contestant with the highest scoring interview will be selected as the winner. If *this* score is a tie, **the head judge will make the final decision.**
 
 ## I won! I won! Now What?
 
-Congratulations! Community service is a big obligation for Corazón Leather titleholders. As this is a working title, we ask three things of each winner:
+Congratulations!
 
-1. Be involved with two NM Leather / Kink events throughout the year. These can be as simple as volunteering at the next event, or as complex as joining a board.
-2. Participate in next year's Corazón Leather event as a judge and/or performer.
-3. With every shenanigan you undertake, aspire to the highest ethical standard. Corazón title holders are leaders in the leather/kink/queer community, and must strive for excellence in their freaky shit.
+Community service is a big obligation for Corazón Leather titleholders. As this is a working title, we ask three things of each winner:
 
-You will have assistance with the fund-raisers, though you are expected to produce ideas and take on the lion's share of planning and implementation. Should you choose to travel to an event, there may be some funds available to assist. You will still need to raise funds for travel expenses.
+1. Be involved with at least four NM Leather / Kink / LGBTQIA+ events throughout the year.  These can be as simple as volunteering at the next event, or as complex as joining an organization board. One of these must be organizing/producing a fundraiser for a non-profit of your choice.
+2. Participate in next year’s Corazón Leather event for your Step-Aside.
+3. With every shenanigan you undertake, aspire to the highest ethical standard. Corazón title holders are leaders in the leather/kink/queer community and must strive for excellence in their freaky shit.
+
+You will have assistance with any fundraisers, though you are expected to produce ideas and take on the lion’s share of planning and implementation.  Should you choose to travel to an event, there may be some funds available to assist.  You will still need to raise funds for travel expenses. A pass to the Southwest Master/slave Contest is provided. This event is held in July in Colorado Springs. Please let the producer know if you do not plan to attend.
