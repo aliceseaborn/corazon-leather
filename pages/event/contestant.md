@@ -41,7 +41,7 @@ Two winners of any gender identity and/or leather identity may be awarded the Co
 Music and stage direction for fantasies must be received no later than **Friday**, October 11, 2024. This is ONE week prior to the event. Any music or stage direction for fantasies submitted late will forfeit five points from the judges.
 
 <center>
-  <a href="https://www.cognitoforms.com/JaysonDaBoiJohnson/Coraz%C3%B3nLeatherApplication">Apply Now</a>
+  <a href="https://www.cognitoforms.com/JaysonDaBoiJohnson/Coraz%C3%B3nLeatherApplication"> >> Apply Now <<</a>
 </center>
 
 
