@@ -42,7 +42,7 @@ Music and stage direction for fantasies must be received no later than **Friday*
 
 <center>
   <h3><a href="https://www.cognitoforms.com/JaysonDaBoiJohnson/Coraz%C3%B3nLeatherApplication">Apply Now</a></h3>
-<center>
+</center>
 
 #### Friday October 18, 2024, 9pm: Kink / Leather Night at the Albuquerque Social Club
 
