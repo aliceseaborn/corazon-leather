@@ -44,6 +44,7 @@ Music and stage direction for fantasies must be received no later than **Friday*
   <h3><a href="https://www.cognitoforms.com/JaysonDaBoiJohnson/Coraz%C3%B3nLeatherApplication">Apply Now</a></h3>
 </center>
 
+
 #### Friday October 18, 2024, 9pm: Kink / Leather Night at the Albuquerque Social Club
 
 Contestants are expected to attend. You will be introducing yourself on stage. Prepare a two minute introduction. This should be an overview of who you are and can contain anything you wish, such as your kinks, Leather/Kink community experience, why you are running for this title, etc.  Contestant numbers will be drawn on stage. Please take the rest of the evening to introduce yourself to the contest judges and interact in social settings with community members.
