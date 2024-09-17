@@ -40,6 +40,10 @@ To compete you must be 21 years old by the date of the contest: Friday, October 
 Two winners of any gender identity and/or leather identity may be awarded the Corazón Leather titles. Contest application must be submitted by **Tuesday, October 1**. Any submissions after October 1, 2024 will not be considered.
 Music and stage direction for fantasies must be received no later than **Friday**, October 11, 2024. This is ONE week prior to the event. Any music or stage direction for fantasies submitted late will forfeit five points from the judges.
 
+<center>
+  <h3><a href="https://www.cognitoforms.com/JaysonDaBoiJohnson/Coraz%C3%B3nLeatherApplication">Apply Now</a></h3>
+<center>
+
 #### Friday October 18, 2024, 9pm: Kink / Leather Night at the Albuquerque Social Club
 
 Contestants are expected to attend. You will be introducing yourself on stage. Prepare a two minute introduction. This should be an overview of who you are and can contain anything you wish, such as your kinks, Leather/Kink community experience, why you are running for this title, etc.  Contestant numbers will be drawn on stage. Please take the rest of the evening to introduce yourself to the contest judges and interact in social settings with community members.
