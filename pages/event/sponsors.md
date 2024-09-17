@@ -11,4 +11,6 @@ This years patch is sponsored by [Battleborn Leather](https://www.etsy.com/shop/
 
 Visit their shop on [Etsy](https://www.etsy.com/shop/Battlebornlthercare), the new home of Black Gold &#8482;, Havana Gold &#8482;, Frankenpatch &#8482; and Purge soap &#8482;.
 
+<br><br>
+
 ![Sponsorship opportunity](/_images/sponsor-2024.png "Sponsorship opportunity")
