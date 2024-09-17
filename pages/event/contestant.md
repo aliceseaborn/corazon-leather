@@ -14,10 +14,6 @@ Come join us! This page will help you understand more about our event and how it
 
 Do you like serving? How about doing things for others? Does travel interest you? Performing and fund-raising? Do you enjoy any of the former in a kinky context? Corazón Leather is looking for someone like you! As New Mexico's premier Leather contest, Corazón title holders pride themselves on the four tenets of Leather culture: Honesty, Integrity, Loyalty and Trust, with a healthy dose of community service and good old fashioned kinky fun. We work to unite all parts of our kinky community, from Leather Daddies to Pet Players, and everyone in between.  This is a chance to entertain, organize, and lead a rambunctious crew with unspeakable interests. Interested?
 
-<center>
-  <h3>Applications are now closed. <br> Check back next year when applications reopen.</h3>
-</center>
-
 
 ## Titleholders & Requirements of our titleholders.
 
@@ -41,7 +37,7 @@ Welcome to the Corazón Leather Contest guidelines page. We couldn't be happier 
 ### I want to run!
 
 To compete you must be 21 years old by the date of the contest: Friday, October 18, 2024.
-Two winners of any gender identity and/or leather identity may be awarded the Corazón Leather titles. Contest application must be submitted by Tuesday, October 1. Any submissions after October 1, 2024 will not be considered.
+Two winners of any gender identity and/or leather identity may be awarded the Corazón Leather titles. Contest application must be submitted by **Tuesday, October 1**. Any submissions after October 1, 2024 will not be considered.
 Music and stage direction for fantasies must be received no later than **Friday**, October 11, 2024. This is ONE week prior to the event. Any music or stage direction for fantasies submitted late will forfeit five points from the judges.
 
 #### Friday October 18, 2024, 9pm: Kink / Leather Night at the Albuquerque Social Club
