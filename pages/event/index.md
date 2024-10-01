@@ -69,11 +69,6 @@ So, as you step onto the stage, remember: Tyler is here to offer his honest crit
 Leonidas Rico-Steel, has been an LGBTQIA+ activist for well over a decade. He has worked and collaborated with many organizations, and using his talents has helped and served the community of NM by producing, participating and performing in many fundraisers. He has held many titles including: Mr Sandias 2021, Emperor 25 of the Imperial Sovereign Court of New Mexico w/ his Husband (Sativa Rico-Stratton, Empress 25) where together with their team and line of succession, raised well over $52,000. in November 2023, Leonidas stepped down as Mr NM Pride 2023. 
 Currently, Leonidas has been bestowed with the title of King Father 2 of the Duke City, helping the ISCNM through on going mentorship and guidance. He also sits on the Board of Directors of the iSCNM as Vice President and Entertainment Coordinator for ABQpride.
 
-### Judge - Master RetroBella
-
-
-Master Retro Bella is a Latina High Femme Leather Woman from Bakersfield, California. Her pronouns are She/Her/Hers. She is the first woman to earn the title of 2023 Southwest Master and currently serves as the first Latina to hold the title of 2024 International Master. Master Retro Bella is the President of the valley’s 1st girls of Leather chapter, San Joaquin Girls of Leather. She is passionate about Latinx/ne representation in M/s and Leather spaces. This passion fueled her to create the Latine Leather pride flag and become the founder of Latinos in Leather. Recognized as one of the Onyx pearls' 'Young 8,' she carries the pearl name Amara Pearl. Master Retro Bella is also the Co-head of the Leather house, House Of Dark Shadows. Together with her slave boydrake, your 2024 International slave, they’ve taught for multiple groups and conferences on both coasts, in the Rocky Mountain region, and internationally.
-
 ![Master RetroBella](/_images/judges/master-retrobella.jpg "Master RetroBella, Judge")
 
 ### Judge - Briar
