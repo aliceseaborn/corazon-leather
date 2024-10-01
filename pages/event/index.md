@@ -69,8 +69,6 @@ So, as you step onto the stage, remember: Tyler is here to offer his honest crit
 Leonidas Rico-Steel, has been an LGBTQIA+ activist for well over a decade. He has worked and collaborated with many organizations, and using his talents has helped and served the community of NM by producing, participating and performing in many fundraisers. He has held many titles including: Mr Sandias 2021, Emperor 25 of the Imperial Sovereign Court of New Mexico w/ his Husband (Sativa Rico-Stratton, Empress 25) where together with their team and line of succession, raised well over $52,000. in November 2023, Leonidas stepped down as Mr NM Pride 2023. 
 Currently, Leonidas has been bestowed with the title of King Father 2 of the Duke City, helping the ISCNM through on going mentorship and guidance. He also sits on the Board of Directors of the iSCNM as Vice President and Entertainment Coordinator for ABQpride.
 
-![Master RetroBella](/_images/judges/master-retrobella.jpg "Master RetroBella, Judge")
-
 ### Judge - Briar
 
 Briar (She/They/Captain) identifies as a Leather, demi-queer, poly, Top-heavy Switch. Bootblack to all, Captain to many, girl to a select few and Mommy to one. Briar has been active in the Dallas community since 2010. Teaching, learning, playing and encouraging others to shenanigate and drive buses from coast to coast.
