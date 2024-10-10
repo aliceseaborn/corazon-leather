@@ -76,14 +76,13 @@ Currently, Leonidas has been bestowed with the title of King Father 2 of the Duk
 Master Trent (he/him) identifies as a Master, a Daddy, a Sir, and just a very kinky old fart.  He joined his first BDSM/Leather group in 1983.  In 1998 he opened a "brick and mortar" BDSM Dungeon club in Denver.  He has been active in many national and local clubs, organizations, and events, including Thunder in the Mountains, NLA, MAsT, Voodoo Leather Works, Denver Sanctuary, the Dance of Souls, and the Danse of Life, among others.  Master Trent was the Co-Founder of Colorado Leather Fest, and the Colorado Master/slave contest and title. He is now the Co-Producer of the Southwest Master/slave Contest and Leather Run Weekend.
 Over the years Master Trent has been a local, regional and national presenter.  He has judged a number of leather contests, including the honor of being the head judge at the International Master and slave contest in 2018.  He has developed and refined a variety of play and skill techniques that he loves to share.  He has been a lifelong student of how people react and respond physically, emotionally and psychologically to various forms of play and stimulation.
 
-
 ### Judge - Briar
+
+![Briar](/_images/judges/briar.jpg "Briar, Judge")
 
 Briar (She/They/Captain) identifies as a Leather, demi-queer, poly, Top-heavy Switch. Bootblack to all, Captain to many, girl to a select few and Mommy to one. Briar has been active in the Dallas community since 2010. Teaching, learning, playing and encouraging others to shenanigate and drive buses from coast to coast.
 Briar was your ICBB 2015 and was also nominated for the 2016 Woman of the year for Pantheon of Leather awards. In 2023, Briar became a member of the Firedancers Dallas and currently serves as their club Secretary. Briar started and ran DFW Bootlab for years pre-pandemic and has recently reopened it to continue working towards retirement by raising up the next generation of bootblacks.
 Briar stays busy volunteering in many areas within the community. While her most rewarding is being part of Leslie’s Team Shine at IML. If you see her at events, she is likely volunteering in some capacity as she has been for years.
-
-![Briar](/_images/judges/briar.jpg "Briar, Judge")
 
 ### Tally Mistress - Sera Miles
 
