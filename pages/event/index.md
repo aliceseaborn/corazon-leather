@@ -69,6 +69,14 @@ So, as you step onto the stage, remember: Tyler is here to offer his honest crit
 Leonidas Rico-Steel, has been an LGBTQIA+ activist for well over a decade. He has worked and collaborated with many organizations, and using his talents has helped and served the community of NM by producing, participating and performing in many fundraisers. He has held many titles including: Mr Sandias 2021, Emperor 25 of the Imperial Sovereign Court of New Mexico w/ his Husband (Sativa Rico-Stratton, Empress 25) where together with their team and line of succession, raised well over $52,000. in November 2023, Leonidas stepped down as Mr NM Pride 2023. 
 Currently, Leonidas has been bestowed with the title of King Father 2 of the Duke City, helping the ISCNM through on going mentorship and guidance. He also sits on the Board of Directors of the iSCNM as Vice President and Entertainment Coordinator for ABQpride.
 
+### Judge - Master Trent
+
+![Master Trent](/_images/judges/master-trent.jpg "Master Trent, Judge")
+
+Master Trent (he/him) identifies as a Master, a Daddy, a Sir, and just a very kinky old fart.  He joined his first BDSM/Leather group in 1983.  In 1998 he opened a "brick and mortar" BDSM Dungeon club in Denver.  He has been active in many national and local clubs, organizations, and events, including Thunder in the Mountains, NLA, MAsT, Voodoo Leather Works, Denver Sanctuary, the Dance of Souls, and the Danse of Life, among others.  Master Trent was the Co-Founder of Colorado Leather Fest, and the Colorado Master/slave contest and title. He is now the Co-Producer of the Southwest Master/slave Contest and Leather Run Weekend.
+Over the years Master Trent has been a local, regional and national presenter.  He has judged a number of leather contests, including the honor of being the head judge at the International Master and slave contest in 2018.  He has developed and refined a variety of play and skill techniques that he loves to share.  He has been a lifelong student of how people react and respond physically, emotionally and psychologically to various forms of play and stimulation.
+
+
 ### Judge - Briar
 
 Briar (She/They/Captain) identifies as a Leather, demi-queer, poly, Top-heavy Switch. Bootblack to all, Captain to many, girl to a select few and Mommy to one. Briar has been active in the Dallas community since 2010. Teaching, learning, playing and encouraging others to shenanigate and drive buses from coast to coast.
