@@ -85,16 +85,6 @@ Briar stays busy volunteering in many areas within the community. While her most
 
 ![Briar](/_images/judges/briar.jpg "Briar, Judge")
 
-### Judge - Justin Garoutte
-
-Justin is a gay, genderqueer, Latine public health leader from Antonito, Colorado. With over nine years of experience in public health, they are passionate about promoting health equity and social justice with marginalized communities across New Mexico. In 2019, they received their Master of Public Health with distinction from the University of New Mexico College of Population Health with a focus on sexual and gender minority health.
-
-Justin has served as Policy Chair to the LGBTQ Health Caucus of the American Public Health Association and currently serves on the Equality New Mexico Foundation Board of Directors. They are currently pursuing their Doctor of Public Health in health equity and social justice from the Johns Hopkins Bloomberg School of Public Health.
-
-Justin continues breaking down barriers for health and building power through community organizing and policy advocacy. They reside in Santa Fe, New Mexico, with their cats Zucca and Peppi. When they are not breaking down barriers for health, you can find them on the local trails, camping, and floating on the Río Grande.
-
-![Justin Garoutte](/_images/judges/justin-garoutte.jpg "Justin Garoutte, Judge")
-
 ### Tally Mistress - Sera Miles
 
 ![Sera Miles](/_images/judges/sera-miles.png "Sera Miles, Tally Mistress")
