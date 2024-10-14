@@ -76,6 +76,12 @@ Currently, Leonidas has been bestowed with the title of King Father 2 of the Duk
 Master Trent (he/him) identifies as a Master, a Daddy, a Sir, and just a very kinky old fart.  He joined his first BDSM/Leather group in 1983.  In 1998 he opened a "brick and mortar" BDSM Dungeon club in Denver.  He has been active in many national and local clubs, organizations, and events, including Thunder in the Mountains, NLA, MAsT, Voodoo Leather Works, Denver Sanctuary, the Dance of Souls, and the Danse of Life, among others.  Master Trent was the Co-Founder of Colorado Leather Fest, and the Colorado Master/slave contest and title. He is now the Co-Producer of the Southwest Master/slave Contest and Leather Run Weekend.
 Over the years Master Trent has been a local, regional and national presenter.  He has judged a number of leather contests, including the honor of being the head judge at the International Master and slave contest in 2018.  He has developed and refined a variety of play and skill techniques that he loves to share.  He has been a lifelong student of how people react and respond physically, emotionally and psychologically to various forms of play and stimulation.
 
+### Judge - Jinx
+
+![Jinx](/_images/judges/jinx-the-lynx.jpeg "Jinx the Linx, Judge")
+
+In the shadows of the night, where the moonlight casts an eerie glow, resides a creature of timeless allure and dark elegance. Known for her hypnotic charm and insatiable thirst, she navigates the nocturnal world with a blend of sophistication and predatory grace. She may not be the highest on the food chain, but she’s higher than you. Formerly known as Myobi, Jinx the Lynx earned the titles of Ms. Sidewinders Kink 2017 and Ms. Corazon Leather 2016-17. With a profound passion for kinky blood sports and vampirism, Ms. Jinx captivates audiences with her unique freak show burlesque acts and edge-y demonstrations. Beyond her dynamic performances, she is deeply committed to giving back, having dedicated countless hours to volunteering in various communities, both local and nationally. Jinx's blend of artistry, knowledge and philanthropy makes her a standout figure in the scene. Let her relentless hunger for blood, pyromania and erotic touch tantalize your skin and mind. 
+
 ### Judge - Briar
 
 ![Briar](/_images/judges/briar.jpg "Briar, Judge")
