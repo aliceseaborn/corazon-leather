@@ -15,32 +15,32 @@ The next Corazón Leather events is described on this page. Come join us!
 
 ## When & Where?
 
-Corazón Leather &#8482; will be held on Friday October 18th through Sunday October 20st, 2024. Primary events will be at Albuquerque Social Club (Soch) and classes will be held at Sidewinders.
+Corazón Leather &#8482; will be held on Friday October 18th through Sunday October 20st, 2024. Primary events will be at Albuquerque Social Club (Soch) and classes will be held at Sidewinders and Soft Corners Studio Center.
 * Friday, October 18th
-	* Opening Ceremonies - 9:00 pm. Social Club.
-	* Meet & Greet at Leather & Kink Night.
+    * Opening Ceremonies - 9:00 pm. Social Club.
+    * Meet & Greet at Leather & Kink Night.
 * Saturday, October 19th
-	* Classes - 3:00 pm. & 4:30 pm. Sidewinders.
-	* Main Event - 9:00 pm. Social Club.
+    * Classes - 3:00 pm. & 4:30 pm. Sidewinders.
+    * Main Event - 9:00 pm. Social Club.
 * Sunday, October 20th
-	* Classes - 10:00 am. Soft Corners Studio Center
+    * Classes - 10:00 am. Soft Corners Studio Center
 
 
 ## Cost to attend & Tickets
 
 **Friday Night**
-* No event charge. Social club membership required ($5 for week), or get in free as a guest.
+* No event charge.
 * This is Leather & Kink Night at Social Club. It's our meet & greet!
 
 **Saturday**
 * Friday night is free.
 * Classes are $15 per person and include all classes for the weekend.
 * Event tickets $10 standing room / $15 seats, Saturday night only.
-* Tickets include Social Club membership for the night.
-	* Obtain tickets by stopping by or calling Social Club at 505-200-0663.
+* Or $50 a table 4 seats
+* Obtain tickets by stopping by or calling Social Club at 505-200-0663.
 
 **Sunday**
-* Classes at $10 per person and include all classes for the weekend.
+* Classes at $15 per person and include all classes for the weekend.
 * No charge for non-class events.
 
 
